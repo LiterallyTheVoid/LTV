@@ -1,5 +1,4 @@
 # How To Live Like a King For Very Little
-0. Test
 1. Don't drink.
 2. Don't drink.
 3. Don't drink pop.
