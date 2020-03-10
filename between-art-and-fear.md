@@ -10,3 +10,10 @@ But that leaves my in a very difficult place. Caught between art and fear.
 
 I love my work. In fact, it has a lot in common with writing. It is indeed a craft. Yes is it has the gleam of pure technicality, but building software is more akin to be a carpenter than being a chemist. 
 
+I have now have the space to create. The issue is what to create. Becoming an adult makes it apparent how finite our time here is. What came before is uncertain, what came after is uncertain. But now, we at least have the smallest amount of control. 
+
+I love building software, but it’s not fulfilling the way that writing is. Even now, I love the writing that I am doing. This sentence makes me happier than all the code that I have developed. 
+
+Yet here I am. Stuck between art and fear. I have the space to create, and yet I don’t do it. 
+
+I used to think that I was afraid that if I didn’t do something that kept me alive, and that was the thing that kept me from following art. But now I can see the fear of death isn’t keeping me from creation. Fear of creation is keeping me from creating. 
